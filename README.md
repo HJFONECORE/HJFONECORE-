@@ -7,3 +7,6 @@
 
 [entry](https://hallooangeredfisheh.carrd.co)
 
+**she/her**
+
+**int , c+h , w2i+afk**
